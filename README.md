@@ -1,4 +1,3 @@
-
 Elevate your Android app to the next level with our state-of-the-art solutions! Contact us today and let’s create something extraordinary!
 
 <div align="start">
